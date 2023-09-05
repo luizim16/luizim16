@@ -1,16 +1,27 @@
-### Hi there 👋
+### Boas vindas ao meu perfil 
 
-<!--
-**luizim16/luizim16** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome é luizim16
 
-Here are some ideas to get you started:
+- Estou estudando na [Alura].(https://www.alura.com.br)
+- Estou me desenvolvendo na linghagem JavaScript
+- Utilizo esse espaço para minha organização e compartilhamentos dos meu projetos desenvolvidos
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Você entrar em contato comigo 
+
+luiz.santos.siqueira@escola.pr.gov.br
+
+@luiz_henriqueyt_
+
+https://media.tenor.com/jak75Z8ZsLQAAAAM/cr7-cristiano-ronaldo.gif
+
+
+
+
+
+
+
+
+
+
+
+
