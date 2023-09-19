@@ -12,7 +12,7 @@ luiz.santos.siqueira@escola.pr.gov.br
 
 @luiz_henriqueyt_
 
-https://media.tenor.com/jak75Z8ZsLQAAAAM/cr7-cristiano-ronaldo.gif
+https://tenor.com/pt-BR/view/manchester-united-cristiano-ronaldo-cr7-wallpaper-gif-25163312
 
 
 
